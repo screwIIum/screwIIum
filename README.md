@@ -1,8 +1,10 @@
 
 <div align="center">
   
-   
-  
-  [rentry‎](https://rentry.co/hypnomics) ‎ ‎  ‎ ![Example GIF](https://files.catbox.moe/jfr1ez.png) ‎    [atabook](https://kanata.atabook.org/)
+ sign my ata...thks... 
+ 
+  ![Example GIF](https://files.catbox.moe/opbipn.gif)
+
+  [RENTRY‎](https://rentry.co/hypnomics)      ‎ ‎  ‎  ‎  ‎  ‎  ‎          ‎ ‎  ‎  ‎  ‎  ‎  ‎     [ATABOOK](https://kanata.atabook.org/)
   
 </div>
