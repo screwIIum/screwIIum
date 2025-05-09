@@ -5,7 +5,7 @@
  
 
  
-  ![Example GIF](https://files.catbox.moe/i925mz.png)
+  ![Example GIF](https://files.catbox.moe/nvar6j.png)
 
   [RENTRY‎](https://rentry.co/hypnomics)      ‎ ‎   ‎  ‎  ‎  ‎  ‎          ‎ ‎  ‎  ‎  ‎  ‎  ‎     [ATABOOK](https://kanata.atabook.org/)
   
