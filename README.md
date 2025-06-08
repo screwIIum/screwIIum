@@ -5,8 +5,8 @@
  
 
  
-  ![Example GIF](https://files.catbox.moe/nvar6j.png)
+  ![Example GIF](https://files.catbox.moe/4hloa9.png)
 
-  [RENTRY‎](https://rentry.co/hypnomics)      ‎ ‎   ‎  ‎  ‎  ‎  ‎          ‎ ‎  ‎  ‎  ‎  ‎  ‎     [ATABOOK](https://kanata.atabook.org/)
+  [rentry‎](https://rentry.co/hypnomics)      ‎ ‎   ‎  ‎  ‎  ‎  ‎          ‎ ‎  ‎  ‎  ‎  ‎  ‎     [atabk](https://kanata.atabook.org/)
   
 </div>
