@@ -7,9 +7,11 @@
  
 
  
-  ![Example GIF](https://files.catbox.moe/ws5a4m.png)
-
- ‎  [rentry](https://rentry.co/hypnomics)      ‎ ‎ ‎ ‎ ‎       ‎ ‎ [atabook](https://kanata.atabook.org/) ‎ ‎ ‎ ‎ ‎ ‎ [matching](https://rentry.co/phaisunaxa) 
+  ![Example GIF](https://i.postimg.cc/HnT5Vvrh/Untitled80-20251010224945.png)
+‎ 
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
+‎ 
+[rentry](https://rentry.co/hypnomics)      ‎ ‎ ‎ ‎ ‎       ‎ ‎ [atabook](https://kanata.atabook.org/) ‎ ‎ ‎ ‎ ‎ ‎ [matching](https://rentry.co/phaisunaxa) 
 </div> 
 ‎ 
 ‎ 
